@@ -1,4 +1,4 @@
-# 
+# Avançado Expensify plugins para Mac OS | Seguro Expensify plugins para PC Windows. Com divisão de PDF e processamento de pagamentos — otimizado para máximo desempenho em cada plataforma.
 
 
 
